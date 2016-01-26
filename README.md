@@ -1,0 +1,2 @@
+# Why-Is-A-Log-House-A-Healthy-Place-To-Call-Home-
+Logs are the most eco-friendly building material that you're going to find, seeing as they're a renewable natural resource. As well as this, logs only require 50% of the energy needed to process cement from its raw form into a usable building material. Add that onto the fact that Nordic Pine's naturally got the ability to store carbon dioxide while it's growing, meaning that building houses with logs is a fantastic way to leave a low carbon footprint and care for future generations.
